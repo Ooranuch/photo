@@ -9,4 +9,3 @@
 MG_4295_Origi![IMG_4488_Original](https://user-images.githubusercontent.com/124755231/217426818-6f8be4f5-77dd-437f-bb6d-ecbb03484654.jpeg)
 nal.jpeg…]()
 ![IMG_4499_Original](https://user-images.githubusercontent.com/124755231/217426804-7abcae5e-23f6-4911-8244-2b6267e20719.jpeg)
-![Uploading IMG_4505_Original.jpeg…]()
